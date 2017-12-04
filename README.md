@@ -37,6 +37,6 @@ https://www.redbubble.com/people/exceedinglyrare/works/15883757-scott-pilgrim
 
 https://www.amazon.com/Little-Buddy-Adventure-Collection-Stuffed/dp/B00ZOLEXNA/r
 
-http://paizo.com/products/btpy8tc0?Pathfinder-Adventure-Path-Rise-of-the-Runelords-Anniversary-Edition
+http://paizo.com/products/btpy8tc0?Pathfinder-Adventure-Path-Rise-of-the-Runelords-Anniversary-Edition (Hard Copy)
 
 Vive(Mostly Joking)
