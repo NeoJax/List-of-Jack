@@ -36,5 +36,3 @@ https://www.jinx.com/p/world_of_warcraft_horde_spray_premium_tee.html
 https://www.redbubble.com/people/exceedinglyrare/works/15883757-scott-pilgrim
 
 https://www.amazon.com/Little-Buddy-Adventure-Collection-Stuffed/dp/B00ZOLEXNA/r
-
-Vive(Mostly Joking)
