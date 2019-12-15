@@ -37,9 +37,4 @@ https://www.redbubble.com/people/exceedinglyrare/works/15883757-scott-pilgrim
 
 https://www.amazon.com/Little-Buddy-Adventure-Collection-Stuffed/dp/B00ZOLEXNA/r
 
-http://paizo.com/products/btpy8tc0?Pathfinder-Adventure-Path-Rise-of-the-Runelords-Anniversary-Edition (Hard Copy)
-
-Some kind of NAS i.e
-https://www.newegg.com/Product/Product.aspx?Item=N82E16822108679&cm_re=nas-_-22-108-679-_-Product
-
 Vive(Mostly Joking)
